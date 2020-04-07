@@ -1,0 +1,2 @@
+# george
+Hello! I'm usman_dev i'm professional Games Developer,character animation,web development,app development I'm programmer and designer, i'm working on Unity Engine for 5 Years now. i'm bachelor of computer science, i have worked on a lot of game which are live on Play store and IOS i work as a 2D Character Designer and Animator, I have been working as an animator for more than 4 years in an animation firm. I have worked on horror and comedy cartoon characters and animations,Over the last 3 years, I design and develop a website, Mobile application development
